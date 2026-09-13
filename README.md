@@ -8,7 +8,7 @@ Rural off-grid workshop in Apache County, Arizona. Free instruction. People, not
 
 ## Programs
 
-AI · Programming & Python · Software · Electronics & hardware · Soldering · 3D manufacturing & scanning · Computer skills · Computer science & engineering
+AI · Programming & Python · Software · Electronics & hardware · Soldering · 3D manufacturing & scanning · Videography · Blue/green screen · Holo displays · Computer skills · Computer science & engineering
 
 Field start: sub-250 g fun fleet in Class G (TRUST still required). Part 107 for work training.
 
